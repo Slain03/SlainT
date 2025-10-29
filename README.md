@@ -1,3 +1,4 @@
+![WhatsApp Image 2025-10-21 at 22 45 06](https://github.com/user-attachments/assets/fe76a076-8e03-4e1d-a2f2-5ca6275f1870)
 # SlainT (SLN) — DeFi Dashboard  
 **From Lesotho to the world. Empowering decentralized finance with heritage and innovation.**
 
